@@ -1,0 +1,6 @@
+- 👋 Holaaa, mi nombre es María Lucía Ladino
+- 👀 Estoy interesada en aprender sobre programación, SQL y manejo de bases de adtos.
+- 🌱 Actualmente estoy aprendiendo sobre SQL.
+- 💞️ Busco oportunidades de crecimiiento y aprendizaje!
+- 📫 malu2232@gmail.com
+- 😄 
